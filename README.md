@@ -1,1 +1,1 @@
-# Trabalho-3-trimestre---Perguntas-sobre-programa-o..
+# Trabalho-3-trimestre---Perguntas-sobre-programa-o.
